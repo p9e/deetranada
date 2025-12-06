@@ -1,4 +1,5 @@
-## [lost lover mural](https://webmural.com/dialon)
+## [deetranada fanart](https://p9e.page/deetranada)
 
-* compassion
-* wordplay
+superspeed baltimore native
+
+vivid flex cascade
